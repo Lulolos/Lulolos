@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Lulolos
 - 👀 I’m interested in making content such as video tutorials and write up.
 - 🌱 I’m currently learning social media optimisation 
-- 💞️ I’m looking to collaborate on new project who require marketing support with explainer videos or video tutorials
+- 💞️ I’m looking to collaborate on new projects requiring help with marketing. I can do explainer videos or video tutorials
 - 📫 How to reach me Twitter @luloloss 
 
 <!---
